@@ -1,0 +1,3 @@
+# notes
+
+abandoned thoughts
